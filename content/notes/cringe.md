@@ -12,15 +12,15 @@ Dating Sim: (an alternate universe in which a man named Edward and a girl named 
 Chemistry Revision: (something for memorising the periodic table)<br>
 [https://github.com/GrimReaper2654/Chemistry-Revision]
 
-Shan-Mei Lore: V1
-Plot:
-• Shan-Mei lives in the city in a small apartment
-• She has a magical amulet with WSM inscribed on it
-• Shan-Mei sees visions of the future and learns about a great evil
-• Taj the Terrorist attacks the city and damages Shan-Mei
-• Edward finds Shan-Mei injured in the rubble of the city
-• Edward heals Shan-Mei and brings her to the town
-• Shan-Mei rebuilds her house and continues to study music and academics
-• Taj the Terrorist returns and attacks the town
-• Taj has made a copy of Shan-Mei's amulet that gives him powers
-• Shan-Mei battles Taj and wins
+Shan-Mei Lore: V1 <br>
+Plot:<br>
+• Shan-Mei lives in the city in a small apartment<br>
+• She has a magical amulet with WSM inscribed on it<br>
+• Shan-Mei sees visions of the future and learns about a great evil<br>
+• Taj the Terrorist attacks the city and damages Shan-Mei<br>
+• Edward finds Shan-Mei injured in the rubble of the city<br>
+• Edward heals Shan-Mei and brings her to the town<br>
+• Shan-Mei rebuilds her house and continues to study music and academics<br>
+• Taj the Terrorist returns and attacks the town<br>
+• Taj has made a copy of Shan-Mei's amulet that gives him powers<br>
+• Shan-Mei battles Taj and wins<br>
