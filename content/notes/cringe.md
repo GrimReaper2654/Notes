@@ -100,4 +100,3 @@ Before Shan-Mei could muster a response, a searing, blinding pain coursed throug
 When she came to, her vision was blurred by the crimson fluid snaking down her face like a river, mingling with the soot and dust that coated her skin. Her limbs were wracked with excruciating pain, and an immense weight crushed down on her legs, Jagged edges of steel and concrete bit into her tender flesh as bright red blood poured out of her numerous wounds. Her screams of anguish drowned out by the cacophony of explosions and the crackling of flames went unanswered as her vision dimmed. <br><br>
 
 Through her pain-addled haze, she caught a fleeting glimpse of the terrorist, his malevolent smirk taunting her from the distance. He vanished into the inferno as darkness claimed her once again. <br><br>
-![image](https://user-images.githubusercontent.com/80506189/236627518-f329ddce-f4a6-40d1-8d23-f19c32864bfd.png)
