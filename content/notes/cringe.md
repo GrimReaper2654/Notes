@@ -89,3 +89,15 @@ But as she lay there, lost in thought, a distant rumble jolted her back to the p
 
 She got up, stumbling towards the window, her legs weak and unsteady. And then she saw it, a blinding flash of light that illuminated the sky with an eerie, orange glow. A wave of heat and pressure blasted through the apartment, shattering the glass and throwing her back against the wall. <br><br>
 
+Ascending to a standing position with great haste, Shan-Mei sprang out of her collapsing apartment, while a deluge of detritus and pulverized masonry cascaded down from the ceiling like a rainstorm. She burst out of her dwelling just in time to behold the next barrage of incendiary missiles plummeting towards the metropolis like a swarm of locusts. The scorching temperature and blinding light forced her to cover her eyes as she bolted down the fragmented pavement, skilfully evading the detonations of cyclotrimethylene-trinitramine and fragments of shattered infrastructure that littered the streets. <br><br>
+
+As Shan-Mei fled, a silhouette materialized in the distance, its visage distorted and contorted by the swirling, seething clouds of ash and smoke. It was none other than Taj the Terrorist, a notorious figure whose fanaticism and malice had driven him to perpetrate unspeakable acts of atrocity and annihilation. The malevolent aura emanating from him was palpable, his countenance an ungodly amalgamation of darkness and fury, like a demon rising from the depths of hell. <br><br>
+
+Taj’s features twisted into a cruel and malevolent sneer, his eyes gleaming with a savage light as he advanced towards Shan-Mei with a cold and calculating menace. Terror gripped Shan-Mei as she stared into Taj’s sunken eyes which smouldered with a cold, unyielding fire. His movements were fluid and graceful, his body seeming to flow through the wreckage like a wraith as he closed in on his prey. <br><br>
+
+Before Shan-Mei could muster a response, a searing, blinding pain coursed through her body Her senses were overwhelmed by the jarring sensation of her body hurtling through the air, before her world was abruptly extinguished by a deafening crash. <br><br>
+
+When she came to, her vision was blurred by the crimson fluid snaking down her face like a river, mingling with the soot and dust that coated her skin. Her limbs were wracked with excruciating pain, and an immense weight crushed down on her legs, Jagged edges of steel and concrete bit into her tender flesh as bright red blood poured out of her numerous wounds. Her screams of anguish drowned out by the cacophony of explosions and the crackling of flames went unanswered as her vision dimmed. <br><br>
+
+Through her pain-addled haze, she caught a fleeting glimpse of the terrorist, his malevolent smirk taunting her from the distance. He vanished into the inferno as darkness claimed her once again. <br><br>
+![image](https://user-images.githubusercontent.com/80506189/236627518-f329ddce-f4a6-40d1-8d23-f19c32864bfd.png)
