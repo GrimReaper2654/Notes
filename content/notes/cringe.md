@@ -31,7 +31,7 @@ Plot:<br>
 • Shan-Mei destroys Taj's imitation of her amulet using standing waves<br>
 • Taj is defeated<br>
 <br>
-CGPT gneerated draft:<br>
+CGPT generated draft:<br>
 In the midst of a bustling metropolis, nestled in a small apartment, lived a year 9 girl named Shan-Mei. She was a solitary figure, braving the frenzied urban landscape alone. However, her solitude was not without its secrets, for she possessed a mystical amulet, adorned in the regal color of purple, with the inscription "WSM" etched upon it. This amulet was no ordinary trinket, for it granted Shan-Mei the gift of clairvoyance, allowing her to see glimpses of the future.<br><br>
 
 But these visions were not ones of sunshine and rainbows. Instead, they were dark, ominous, and foretold of the imminent doom that awaited the very city in which she lived. In her mind's eye, Shan-Mei witnessed a macabre scene, one of fiery destruction and untimely death. The city, once a beacon of hope, was now reduced to rubble, with nothing but ash and debris left in its wake.<br><br>
