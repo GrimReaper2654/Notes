@@ -1,16 +1,14 @@
-In a most unfortunate turn of circumstances, I am currently not of the right state of mind to provide you with brain damage. Just look at some of my other projects for now.
+For those of you wanting brain damage, in a most unfortunate turn of circumstances, I am currently not of the right state of mind to provide you with brain damage. Just look at some of my other projects for now.
 
-The spaceship Game: (my best game, currently unfinished) <br>
-[https://github.com/GrimReaper2654/Spaceship-Game]
+Notes: (under construction) <br>
 
-The Taj Game: (my first game, very buggy, will recode it later)<br>
-[https://github.com/GrimReaper2654/Taj-Game]
+<a href="https://github.com/GrimReaper2654/Spaceship-Game">Spaceship Game</a>: (my best game, currently unfinished) <br>
 
-Dating Sim: (an alternate universe in which a man named Edward and a girl named \[REDACTED] are dating)<br>
-[https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME]
+<a href="https://github.com/GrimReaper2654/Taj-Game">The Taj Game</a>: (my first game, very buggy, will recode it later) <br>
 
-Chemistry Revision: (something for memorising the periodic table)<br>
-[https://github.com/GrimReaper2654/Chemistry-Revision]
+<a href="https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME">DatingSim</a>: (an alternate universe in which a man named Edward and a girl named [REDACTED] are dating)<br>
+
+<a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
 
 Shan-Mei Lore: V1 <br>
 Plot:<br>
