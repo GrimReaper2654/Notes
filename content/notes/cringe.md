@@ -10,6 +10,8 @@ Notes: (under construction) <br>
 
 <a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
 
+<a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
+
 Shan-Mei Lore: V1 <br>
 Plot:<br>
 • Shan-Mei lives in the city in a small apartment<br>
@@ -31,42 +33,6 @@ Plot:<br>
 • Shan-Mei destroys Taj's imitation of her amulet using standing waves<br>
 • Taj is defeated<br>
 <br>
-CGPT generated draft:<br>
-In the midst of a bustling metropolis, nestled in a small apartment, lived a year 9 girl named Shan-Mei. She was a solitary figure, braving the frenzied urban landscape alone. However, her solitude was not without its secrets, for she possessed a mystical amulet, adorned in the regal color of purple, with the inscription "WSM" etched upon it. This amulet was no ordinary trinket, for it granted Shan-Mei the gift of clairvoyance, allowing her to see glimpses of the future.<br><br>
-
-But these visions were not ones of sunshine and rainbows. Instead, they were dark, ominous, and foretold of the imminent doom that awaited the very city in which she lived. In her mind's eye, Shan-Mei witnessed a macabre scene, one of fiery destruction and untimely death. The city, once a beacon of hope, was now reduced to rubble, with nothing but ash and debris left in its wake.<br><br>
-
-As the days passed, Shan-Mei's worst fears began to unfold before her very eyes. The terrorist known as Taj had unleashed his wrath upon the city, his malevolent intent clear for all to see. He swept through the streets like a scythe, leaving destruction and despair in his wake. Buildings crumbled, flames raged, and the once vibrant city was now reduced to a desolate wasteland. <br><br>
-
-The residents of the city, though initially defiant, soon found their resistance to be futile in the face of Taj's overwhelming power. They fought valiantly, but their efforts were no match for the terrorist's cunning and cruelty. The city was plunged into darkness, and the once proud citizens were left to cower in fear and despair.<br><br>
-
-Amidst this chaos, Shan-Mei found herself caught in the crossfire. She had been out on a mission to gather supplies when Taj's forces descended upon the city. In the chaos that ensued, she found herself badly injured and unable to move. Her amulet, once a source of comfort and hope, had been shattered beyond repair.<br><br>
-
-But just when all seemed lost, a ray of hope appeared on the horizon. A man named Edward, a stranger to Shan-Mei, emerged from the shadows and lifted her to safety. He had seen the destruction wrought by Taj and had taken it upon himself to help those in need. With his help, Shan-Mei was able to escape the city and make her way to safety.<br><br>
-
-As they fled the city, Shan-Mei could not help but wonder about the fate of her home. She knew that Taj's destruction had left a permanent mark on the city and its people, and that it would take years to recover from the damage. But despite the pain and suffering she had endured, she remained determined to do all that she could to help rebuild her city and restore hope to its people. With Edward's help, she knew that anything was possible, and that together, they could overcome even the greatest of obstacles.<br><br>
-
-As Shan-Mei adjusted to life in Edward's small town, she quickly realized that she had found herself in the midst of a colorful cast of characters. There was Reaper, an eccentric man obsessed with military aircraft, and Edward himself, who lived in a house made entirely of obsidian and had amassed an impressive knowledge of chemistry. Despite their quirks, the people of the town were warm and welcoming, and Shan-Mei found herself feeling at home among them.<br><br>
-
-With Edward's help, Shan-Mei set about rebuilding her house, using quartz and other materials she had salvaged from the ruins of her old home. Though the process was long and arduous, she took solace in the fact that she was slowly but surely making progress. Each day, she worked tirelessly to transform her new home into a place of comfort and security.<br><br>
-
-But even as she worked, Shan-Mei could not shake the feeling that Taj's return was inevitable. She knew that he would stop at nothing to destroy what remained of the city, and that she needed to be ready to defend herself and those she cared about. With this in mind, she began to train, honing her skills and working to strengthen her body and mind.<br><br>
-
-As she trained, Shan-Mei found herself drawing strength from the people around her. Edward was a constant source of support, always there to lend a listening ear or offer words of encouragement. Reaper, for all his quirks, proved to be a valuable ally, sharing his knowledge of military strategy and helping Shan-Mei prepare for the inevitable confrontation.<br><br>
-
-Together, they worked tirelessly, determined to defend their town and protect the lives of those they held dear. And as the days turned to weeks, and the weeks turned to months, Shan-Mei knew that she was ready. She was ready to face Taj once more, ready to stand tall and fight for what she believed in. With the support of her new family, she knew that anything was possible, and that no matter what the future held, she would face it with courage and determination.<br><br>
-
-Despite Shan-Mei's preparations, Taj's return was a brutal one. He attacked the town with a ferocity that left many injured or dead. Edward and Reaper fought bravely, but in the end, they both fell to Taj's wrath.<br><br>
-
-Shan-Mei was devastated by the loss of her newfound family, but she knew that she could not give up. With a newfound determination, she fought Taj with all her might. She wielded her repaired amulet with skill and precision, using its magical powers to strike at Taj's defenses and hold him at bay.<br><br>
-
-But just when it seemed that Shan-Mei had the upper hand, Taj pulled out an imitation of her amulet. The fake amulet glowed with a dark energy, and Taj used its power to launch a devastating counterattack. For a moment, it seemed as though all was lost.<br><br>
-
-But Shan-Mei did not give up. She summoned all her strength and courage, fighting with everything she had. In a climactic battle that shook the very ground beneath them, she faced off against Taj, each blow ringing out like thunder in the night.<br><br>
-
-And in the end, Shan-Mei emerged victorious. With a final strike, she shattered Taj's imitation amulet, leaving him defenseless. With a cry of triumph, she dealt the final blow, sending Taj sprawling to the ground.<br><br>
-
-As the dust settled, Shan-Mei surveyed the wreckage around her. The town was in ruins, and her newfound family was gone. But despite the loss, she knew that she had done what she needed to do. She had stood up to evil, faced it head-on, and emerged triumphant.<br><br>
 
 Actual Shan-Mei Lore: <Br>
 The sprawling urban expanse unfurled out the window of the 69th floor, stretching out to the horizon, like a tapestry woven with the finest strands of concrete and steel. The cityscape emerged from the mountainous terrain, a stunning and vibrant tableau of human endeavour. The gleaming glass facades of the towering high-rise buildings illuminated the maze of streets and alleys into a shimmering mosaic of light and shadow as the afternoon sun cast its rays over the snow-capped mountains in the distance. <br><br>
@@ -100,3 +66,5 @@ Before Shan-Mei could muster a response, a searing, blinding pain coursed throug
 When she came to, her vision was blurred by the crimson fluid snaking down her face like a river, mingling with the soot and dust that coated her skin. Her limbs were wracked with excruciating pain, and an immense weight crushed down on her legs, Jagged edges of steel and concrete bit into her tender flesh as bright red blood poured out of her numerous wounds. Her screams of anguish drowned out by the cacophony of explosions and the crackling of flames went unanswered as her vision dimmed. <br><br>
 
 Through her pain-addled haze, she caught a fleeting glimpse of the terrorist, his malevolent smirk taunting her from the distance. He vanished into the inferno as darkness claimed her once again. <br><br>
+  
+To be continued...
