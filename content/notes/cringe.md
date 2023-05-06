@@ -15,10 +15,18 @@ Plot:<br>
 • Shan-Mei lives in the city in a small apartment<br>
 • She has a magical amulet with WSM inscribed on it<br>
 • Shan-Mei sees visions of the future and learns about a great evil<br>
-• Taj the Terrorist attacks the city and damages Shan-Mei<br>
+• Taj the Terrorist (MQ9 Reaper from an alternate universe) attacks the city and damages Shan-Mei<br>
 • Edward finds Shan-Mei injured in the rubble of the city<br>
 • Edward heals Shan-Mei and brings her to the town<br>
 • Shan-Mei rebuilds her house and continues to study music and academics<br>
 • Taj the Terrorist returns and attacks the town<br>
 • Taj has made a copy of Shan-Mei's amulet that gives him powers<br>
-• Shan-Mei battles Taj and wins<br>
+• The other members of the town fight Taj<br>
+• Ewdard is switly defeated<br>
+• Reaper is initially evenly matched with Taj the Terrorist but the power of Taj's amulet overwhelms him<br>
+• After seeing the death of her friends, Shan-Mei prepares to battle Taj<br>
+• Shan-Mei battles Taj<br>
+• Taj uses MQ9-Reaoer drones<br>
+• Shan-Mei uses Oboe<br>
+• Shan-Mei destroys Taj's imitation of her amulet using standing waves<br>
+• Taj is defeated<br>
