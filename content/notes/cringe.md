@@ -56,3 +56,14 @@ As she trained, Shan-Mei found herself drawing strength from the people around h
 
 Together, they worked tirelessly, determined to defend their town and protect the lives of those they held dear. And as the days turned to weeks, and the weeks turned to months, Shan-Mei knew that she was ready. She was ready to face Taj once more, ready to stand tall and fight for what she believed in. With the support of her new family, she knew that anything was possible, and that no matter what the future held, she would face it with courage and determination.<br><br>
 
+Despite Shan-Mei's preparations, Taj's return was a brutal one. He attacked the town with a ferocity that left many injured or dead. Edward and Reaper fought bravely, but in the end, they both fell to Taj's wrath.<br><br>
+
+Shan-Mei was devastated by the loss of her newfound family, but she knew that she could not give up. With a newfound determination, she fought Taj with all her might. She wielded her repaired amulet with skill and precision, using its magical powers to strike at Taj's defenses and hold him at bay.<br><br>
+
+But just when it seemed that Shan-Mei had the upper hand, Taj pulled out an imitation of her amulet. The fake amulet glowed with a dark energy, and Taj used its power to launch a devastating counterattack. For a moment, it seemed as though all was lost.<br><br>
+
+But Shan-Mei did not give up. She summoned all her strength and courage, fighting with everything she had. In a climactic battle that shook the very ground beneath them, she faced off against Taj, each blow ringing out like thunder in the night.<br><br>
+
+And in the end, Shan-Mei emerged victorious. With a final strike, she shattered Taj's imitation amulet, leaving him defenseless. With a cry of triumph, she dealt the final blow, sending Taj sprawling to the ground.<br><br>
+
+As the dust settled, Shan-Mei surveyed the wreckage around her. The town was in ruins, and her newfound family was gone. But despite the loss, she knew that she had done what she needed to do. She had stood up to evil, faced it head-on, and emerged triumphant.<br><br>
