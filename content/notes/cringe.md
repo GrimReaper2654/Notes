@@ -67,3 +67,18 @@ But Shan-Mei did not give up. She summoned all her strength and courage, fightin
 And in the end, Shan-Mei emerged victorious. With a final strike, she shattered Taj's imitation amulet, leaving him defenseless. With a cry of triumph, she dealt the final blow, sending Taj sprawling to the ground.<br><br>
 
 As the dust settled, Shan-Mei surveyed the wreckage around her. The town was in ruins, and her newfound family was gone. But despite the loss, she knew that she had done what she needed to do. She had stood up to evil, faced it head-on, and emerged triumphant.<br><br>
+
+Actual Shan-Mei Lore: <Br>
+The urban expanse unfolded across the mountainous landscape like a tapestry woven with threads of concrete and steel. The bustling metropolis, stretched out to the horizon, the maze of streets and alleys is transformed into a shimmering mosaic of light and shadow. The gleaming glass facades of the high-rise buildings reflect the sky above, while the frenetic movement of vehicles and pedestrians creates a kaleidoscope of motion and colour. <br><br>
+
+In the midst of the bustling metropolis, nestled in a small apartment, Shan-Mei sat slumped over the mahogany desk, several sheets of unfinished music haphazardly scattered amongst the stationary and empty coffee cups. A light purple glow emanated from the amethyst amulet within her grasp, bathing the cramped room in a soft glow as Shan-Mei drifted in and out of consciousness. <br><br>
+
+A deafening explosion resonated through the city, followed by the roar of jet engines as Shan-Mei snapped awake.  <br> <br>
+
+Fire and death. That was all Shan-Mei saw as she glanced out the window. The towering skyscrapers that once reached for the heavens now lie shattered and twisted, their steel skeletons exposed like broken bones as raging infernos ravaged the wreckages. Charred corpses littered the cracked streets, as concrete and metal rained from the sky. Explosions resonated through the mangled metal and pulverised concrete, downing out the wails of agony and torment from the survivors. 
+
+Amidst the chaos, Shan-Mei darted through her crumbling apartment. Her amulet, inscribed with WSM glowed faintly as it guided her through the wreckage. However, as Shan-Mei turned a corner, a hideous sight greeted her. A towering figure, over 2 meters tall, stood before her, garbed in a black mask and cloak. “Taj the Terrorist” Shan-Mei thought to herself as she stared at the visage of the destroyer of her city.<br><br>
+
+Before Shan-Mei could react, pain erupted through her body as she felt something heavy strike her head. She felt her body hit the ground moments later as blood poured down her face, Jagged shards of steel and concrete tore at her delicate skin as a large slab of concrete crushed her legs. Screams of pain and agony drowned out the cracking of fire as Shan-Mei watched the terrorist teleport away before succumbing to unconsciousness. <br><br>
+
+
