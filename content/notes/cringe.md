@@ -23,10 +23,11 @@ Plot:<br>
 • Taj has made a copy of Shan-Mei's amulet that gives him powers<br>
 • The other members of the town fight Taj<br>
 • Ewdard is switly defeated<br>
-• Reaper is initially evenly matched with Taj the Terrorist but the power of Taj's amulet overwhelms him<br>
+• Reaper (who is on Shan-Mei's side) is initially evenly matched with Taj the Terrorist but the power of Taj's amulet overwhelms him<br>
 • After seeing the death of her friends, Shan-Mei prepares to battle Taj<br>
 • Shan-Mei battles Taj<br>
-• Taj uses MQ9-Reaoer drones<br>
+• Taj uses MQ9-Reaper drones<br>
 • Shan-Mei uses Oboe<br>
 • Shan-Mei destroys Taj's imitation of her amulet using standing waves<br>
 • Taj is defeated<br>
+<br>
