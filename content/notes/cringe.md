@@ -34,7 +34,7 @@ Plot:<br>
 • Taj is defeated<br>
 <br>
 
-<strong>Actual Shan-Mei Lore:<\strong> Current Progress: The defeat of Edward at the hands of Taj the Terrorist<Br>
+<strong>Actual Shan-Mei Lore:</strong> Current Progress: The defeat of Edward at the hands of Taj the Terrorist<Br>
 The sprawling urban expanse unfurled out the window of the 69th floor, stretching out to the horizon, like a tapestry woven with the finest strands of concrete and steel. The cityscape emerged from the mountainous terrain, a stunning and vibrant tableau of human endeavour. The gleaming glass facades of the towering high-rise buildings illuminated the maze of streets and alleys into a shimmering mosaic of light and shadow as the afternoon sun cast its rays over the snow-capped mountains in the distance. <br><br>
 
 Amidst the ceaseless bustle and cacophony of the urban metropolis, nestled within the confines of a modest apartment, Shan-Mei sat hunched over a polished mahogany desk. The room was dimly lit by the wan glow of a solitary desk lamp, its flickering light casting ominous shadows upon the cluttered surroundings. Clutching the smooth purple amulet in her hand, as she gazed out at the cityscape beyond, her mind awhirl with creative impulses and unfettered musings. Several sheets of music paper lay scattered haphazardly amidst the cluttered desk, each one bearing the unfinished notes of a symphony yet to be born. Empty paper tea cups and crumpled tissues littered the floor, the remnants of a solitary vigil that had stretched on for hours. With a deep sigh, she pushed aside the dishevelled strands of her hair, closed her eyes, and clasped the amethyst amulet between her lithe fingers. <br><br>
