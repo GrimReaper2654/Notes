@@ -89,3 +89,7 @@ A dark, ominous glow enveloped Taj, as if he was being imbued with some otherwor
 
 Shan-Mei stared in grief at the battered bodies of her only friends. As tears welled in her eyes, she rushed towards Taj, her oboe raised in a battle stance. Taj sneered as he watched Shan-Mei approach, but his expression soon morphed into one of horror as high frequency, high amplitude sound waves streamed into his ears. Standing waves formed in his armour as they resonated with Taj’s screams of pain. As blood poured out of Taj’s ears, the terrorist swiftly retreated. <br><br>
 In case you couldn’t tell, the last paragraph is a joke and will be replaced soon.
+
+What the other town members were doing during the battle:
+![isleep](https://user-images.githubusercontent.com/80506189/236664204-17782458-4078-4f6c-b279-c486e3d29519.png)
+
