@@ -87,4 +87,5 @@ Reaper was caught off guard as Taj continued his relentless assault, however his
 
 A dark, ominous glow enveloped Taj, as if he was being imbued with some otherworldly power. Taj's blade clocked in a black aura, phased through Reaper's scythe and embedded itself deep within his chest. The smell of blood filled the air as Reaper stumbled back, tripping on the rubble. “The trajectory… It changed!” Reaper gasped out, blood trickling from his mouth. <br><br>
 
-To be continued...
+Shan-Mei stared in grief at the battered bodies of her only friends. As tears welled in her eyes, she rushed towards Taj, her oboe raised in a battle stance. Taj sneered as he watched Shan-Mei approach, but his expression soon morphed into one of horror as high frequency, high amplitude sound waves streamed into his ears. Standing waves formed in his armour as they resonated with Taj’s screams of pain. As blood poured out of Taj’s ears, the terrorist swiftly retreated. <br><br>
+In case you couldn’t tell, the last paragraph is a joke and will be replaced soon.
