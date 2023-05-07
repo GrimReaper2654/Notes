@@ -93,7 +93,17 @@ The resounding echoes of metal colliding against magic rang out like thunder as 
 
 With a fierce cry of determination, Shan-Mei charged towards Taj, her amulet glowing with a brilliant purple light as she channelled all its power into her ultimate attack. An amethyst lance of energy sliced through the air with the force of a meteor, careening towards the terrorist at hypersonic speeds. Taj's dark aura expanded and darkened, twisting and warping like a malevolent vortex as he sneered. Horror adorned Shan-Mei’s features as her attack disintegrated upon contact with Taj’s aura. Taj saw his opening and took it with relish. With a deafening roar, he clapped his hands together, causing the very molecules within the air to undergo nuclear fusion. The sheer force of the reaction was cataclysmic, billions of electron volts of energy erupted from between Taj's fingers, incinerating everything in their path. Shan-Mei was flung across the battlefield like a rag doll, her body bouncing and tumbling amidst the rubble. She struggled to stay conscious, but her vision was hazy, and her ears were ringing with a high-pitched whine. As she lay there, struggling to make sense of what had just happened, Taj's cruel smile appeared before her, taunting her with the knowledge that her efforts had been in vain. <br><br>
 
-To be continued...
+
+Shan-Mei's body was wracked with pain, every muscle screaming with fatigue. She struggled to remain upright, her mind a blur of confusion and desperation. But even in her weakened state, Shan-Mei refused to give up. With gritted teeth, she muttered a fervent prayer to the Choyuni gods of the innovations island, beseeching them for strength and guidance. <br><br>
+
+Taj watched her with a sneer, delighting in her suffering, his dark aura pulsing with malevolent energy. As he raised his arm to deliver the final blow, Shan-Mei braced herself for the impact, her heart pounding in her chest. But then, something strange happened. A look of confusion and terror flickered across Taj's face, as if he was sensing something that was beyond the scope of normal perception. The battlefield fell silent, the incessant explosions and screams abruptly silenced. <br><br>
+
+Then, without warning, Taj's body began to convulse, his eyes rolling back into his head. Shan-Mei watched in a mixture of shock and fascination as the terrorist's body shook violently. Blood poured from his eyes as his malevolent aura started to dissipate. A cry of agony and fear resounded through the wreckage as Taj collapsed onto his knees, his armor shattering into dust and his sword falling to the ground with a deafening clang. A mixture of terror and awe adorned his face as he stared into the distance, as if beholding a vision that was too terrible to comprehend. <br><br>
+
+In a flash of light, Purple Maize appeared in all of his divine glory. Magenta wings unfurled behind his back as an admin console appeared in front of him. <br>`/kill Taj_the_Terrorist`<br>
+Taj’s body dissipated into motes of light as the admin entered the command. Moments later, silence returned to the battlefield as Purple Maize’s visage dissipated into countless iridescent particles. <br><br>
+
+I'll improve the ending later<br>
 
 What the other town members were doing during the battle:<br>
 ![isleep](https://user-images.githubusercontent.com/80506189/236664204-17782458-4078-4f6c-b279-c486e3d29519.png)
