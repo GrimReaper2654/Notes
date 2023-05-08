@@ -12,29 +12,8 @@ Notes: (under construction) <br>
 
 <a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
 
-Shan-Mei Lore: V1 <br>
-Plot:<br>
-• Shan-Mei lives in the city in a small apartment<br>
-• She has a magical amulet with WSM inscribed on it<br>
-• Shan-Mei sees visions of the future and learns about a great evil<br>
-• Taj the Terrorist (MQ9 Reaper from an alternate universe) attacks the city and damages Shan-Mei<br>
-• Edward finds Shan-Mei injured in the rubble of the city<br>
-• Edward heals Shan-Mei and brings her to the town<br>
-• Shan-Mei rebuilds her house and continues to study music and academics<br>
-• Taj the Terrorist returns and attacks the town<br>
-• Taj has made a copy of Shan-Mei's amulet that gives him powers<br>
-• The other members of the town fight Taj<br>
-• Ewdard is switly defeated<br>
-• Reaper (who is on Shan-Mei's side) is initially evenly matched with Taj the Terrorist but the power of Taj's amulet overwhelms him<br>
-• After seeing the defeat of her friends, Shan-Mei prepares to battle Taj<br>
-• Shan-Mei battles Taj<br>
-• Taj uses MQ9-Reaper drones<br>
-• Shan-Mei uses Oboe<br>
-• Shan-Mei destroys Taj's imitation of her amulet using standing waves<br>
-• Taj is defeated<br>
-<br>
+**Shan-Mei Lore: V1** <br>
 
-<strong>Actual Shan-Mei Lore:</strong> Current Progress: The beginning of the battle between Shan-Mei and Taj the Terrorist<Br>
 The sprawling urban expanse unfurled out the window of the 69th floor, stretching out to the horizon, like a tapestry woven with the finest strands of concrete and steel. The cityscape emerged from the mountainous terrain, a stunning and vibrant tableau of human endeavour. The gleaming glass facades of the towering high-rise buildings illuminated the maze of streets and alleys into a shimmering mosaic of light and shadow as the afternoon sun cast its rays over the snow-capped mountains in the distance. <br><br>
 
 Amidst the ceaseless bustle and cacophony of the urban metropolis, nestled within the confines of a modest apartment, Shan-Mei sat hunched over a polished mahogany desk. The room was dimly lit by the wan glow of a solitary desk lamp, its flickering light casting ominous shadows upon the cluttered surroundings. Clutching the smooth purple amulet in her hand, as she gazed out at the cityscape beyond, her mind awhirl with creative impulses and unfettered musings. Several sheets of music paper lay scattered haphazardly amidst the cluttered desk, each one bearing the unfinished notes of a symphony yet to be born. Empty paper tea cups and crumpled tissues littered the floor, the remnants of a solitary vigil that had stretched on for hours. With a deep sigh, she pushed aside the dishevelled strands of her hair, closed her eyes, and clasped the amethyst amulet between her lithe fingers. <br><br>
