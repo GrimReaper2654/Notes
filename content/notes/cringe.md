@@ -1,6 +1,6 @@
 For those of you wanting brain damage, in a most unfortunate turn of circumstances, I am currently not of the right state of mind to provide you with brain damage. Just look at some of my other projects for now.
 
-Notes: (under construction) <br>
+Projects:<br>
 
 <a href="https://github.com/GrimReaper2654/Spaceship-Game">Spaceship Game</a>: (my best game, currently unfinished) <br>
 
@@ -11,6 +11,8 @@ Notes: (under construction) <br>
 <a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
 
 <a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
+
+<a href="https://grimreaper2654.github.io/Notes/notes/BOXcomics/">My short comics</a>: (poorly drawn on trackpad)<br>
 
 **Shan-Mei Lore: V1** <br>
 
