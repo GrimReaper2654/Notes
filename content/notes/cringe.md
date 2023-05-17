@@ -14,7 +14,7 @@ Projects:<br>
 
 <a href="https://grimreaper2654.github.io/Notes/notes/BOXcomics/">BOX Comics</a>: (poorly drawn comics on trackpad)<br>
 
-<a href="https://grimreaper2654.github.io/Notes/notes/MCPvP/">MC PvP Gear</a>: (OP minecraft gear made with commands)<br>
+<a href="https://grimreaper2654.github.io/Notes/notes/MCPvP/">Mineraft Commands</a>: (OP minecraft items and mobs made with commands, uses Java 1.19 latest snapshot)<br>
 
 <a href="https://grimreaper2654.github.io/Notes/notes/Englishing/">Englishing</a>: (Stuff I write for no reason at all)<br>
 
