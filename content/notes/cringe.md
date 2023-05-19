@@ -1,20 +1,27 @@
-For those of you wanting brain damage, in a most unfortunate turn of circumstances, I am currently not of the right state of mind to provide you with brain damage. Just look at some of my other projects for now.
+# An Exceedingly Puzzling Discourse on the Ill-Advised Conundrum of Reading This Essay
 
-Projects:<br>
+## Abstract
 
-<a href="https://github.com/GrimReaper2654/Spaceship-Game">Spaceship Game</a>: (my best game, currently unfinished) <br>
+The following expository treatise endeavors to elucidate the intricate enigma that is the sagacity, or rather the lack thereof, involved in perusing the present manuscript. Employing an ostentatious assemblage of elaborate language, the composition is ingeniously crafted to challenge the reader's cognitive faculties, necessitating extensive cognitive endeavors, attentive rereading, and an unyielding disposition towards cognitive dissonance. Furthermore, this dissertation incorporates multifarious concepts from a panoply of scholarly domains, thereby evoking an aura of inscrutability that further dissuades the reader from engaging with the composition. To navigate this perplexing labyrinth of linguistic intricacy, the reader must summon a formidable array of analytical capabilities and draw upon a vast spectrum of intellectual disciplines. Consequently, the effort required to grasp the underlying message propels the reader toward the resounding conclusion that the pursuit of comprehending this essay is, indubitably, an unwise endeavor.<br><br>
 
-<a href="https://github.com/GrimReaper2654/Taj-Game">The Taj Game</a>: (my first game, very buggy, will recode it later) <br>
+## Introduction: The Quandary of Deliberation
 
-<a href="https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME">Dating Sim</a>: (an alternate universe in which a man named Edward and a girl named [REDACTED] are dating)<br>
+In contemplating the merits of engaging with this convoluted composition, one is inexorably confronted with an inherent paradox, an intellectual conundrum that lurks within the very fabric of this intricate narrative. The reader, embarking upon a hazardous expedition into the vast and bewildering expanse of this essay, is instantaneously presented with a perplexing predicament: the interplay between their insatiable curiosity and the alluring intricacy of the discourse. Alas, this quandary necessitates a rigorous examination of the perils that await those intrepid enough to traverse this literary labyrinth.<br><br>
 
-<a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
+## The Murky Depths of Linguistic Abstruseness
 
-<a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
+Delving into the proverbial depths of this textual morass, one encounters a tempestuous sea of obscure and recondite lexicon, chosen with meticulous fastidiousness to confound and confuddle the reader. The compendium of polysyllabic monstrosities and labyrinthine syntactical structures intricately woven throughout this composition constitutes a veritable arsenal of lexical obfuscation, designed to obviate clarity and hinder comprehension. In effect, this deliberate obliquity compels the reader to engage in a protracted and exasperating cognitive struggle, weaving through a thicket of linguistic convolutions, with every read requiring untold iterations to even begin to glimpse the faintest vestiges of meaning.<br><br>
 
-<a href="https://grimreaper2654.github.io/Notes/notes/BOXcomics/">BOX Comics</a>: (poorly drawn comics on trackpad)<br>
+## Interdisciplinary Intricacy: The Embodiment of Cognitive Exigency
 
-<a href="https://grimreaper2654.github.io/Notes/notes/MCPvP/">Mineraft Commands</a>: (OP minecraft items and mobs made with commands, uses Java 1.19 latest snapshot)<br>
+An additional layer of mind-bending complexity lies in the judicious amalgamation of diverse concepts hailing from disparate fields of study. By entwining notions from mathematics, philosophy, quantum mechanics, anthropology, and neurobiology, among others, this composition operates as an intellectual symphony, its melodic cacophony resonating throughout the tapestry of scholarly disciplines. The confluence of these multifarious ideas serves as an arduous intellectual gauntlet, wherein the reader, like a hapless traveler, must navigate through a tangled nexus of abstract paradigms, grappling with the enigmatic correlations between variegated knowledge domains.<br><br>
 
-<a href="https://grimreaper2654.github.io/Notes/notes/Englishing/">Englishing</a>: (Stuff I write for no reason at all)<br>
+## The Elusive Quest for Meaning: A Sisyphean Endeavor
 
+Toiling ceaselessly upon the precipice of cognitive collapse, the reader finds themselves embroiled in an unending cycle of comprehension and befuddlement, akin to the fabled Greek myth of Sisyphus. Each ascent towards comprehension is met with an inexorable descent into further perplexity, perpetuating an eternal struggle against the indomitable forces of semantic opacity. As the reader grapples with the relentless pursuit of meaning, the illusory mirage of comprehension dissipates, replaced by an ever-expanding abyss of interpretive possibilities, rendering the very notion of understanding an elusive chimera.<br><br>
+
+## Conclusion: The Cautionary Lesson of Erudite Evasion
+
+In the grand tapestry of human intellectual pursuits, the discerning reader must weigh the costs and benefits of engaging with the dense and intricate textual mosaic that lies before them. Alas, the endeavor to decipher this laborious composition inevitably unveils the stark reality of its inherent folly. The ceaseless reiteration of cognitive exertion, the entangled web of enigmatic language, and the integration of interdisciplinary obscurity all converge to forge an impenetrable bastion, dissuading even the most intrepid of scholars from endeavoring to decipher this labyrinthine prose.<br><br>
+
+Thus, it is with a modicum of certitude that the reader must confront the veracity of this assertion: the very act of reading this essay, despite its superficial allure, is ultimately an ill-advised decision, destined to ensnare the intellectual faculties, usurp valuable time, and perpetuate an existential quandary that yields no tangible rewards. To succumb to the siren call of this perplexing dissertation is to embark upon a fool's errand, entangling oneself in a Gordian knot of linguistic convolution that resists unraveling. As such, dear reader, heed this warning and abstain from indulging in the tantalizing yet treacherous pursuit of comprehending this essay, for it is an enigma best left unexplored.
