@@ -20,5 +20,4 @@ Here are some of my projects: <br>
 
 <a href="https://grimreaper2654.github.io/Notes/notes/Englishing/">Englishing</a>: (Stuff I write for no reason at all)<br>
 
-For those who wish for brain damage:
-<a href="https://grimreaper2654.github.io/Notes/notes/Cringe/">Cringe</a>: (cringe stuff, don't read)<br>
+For those who wish for brain damage,<a href="https://grimreaper2654.github.io/Notes/notes/Cringe/">Click here</a>: (cringe stuff, don't read)<br>
