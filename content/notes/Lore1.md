@@ -69,3 +69,6 @@ In an instantaneous burst of luminescence, Purple Maize materialized, emanating 
 As Terrorist Taj beheld this divine spectacle, a profound trepidation overcame him, prompting him to retreat, shrinking and withering in the face of the holy aura exuding from the deity. The once menacing countenance of Taj was reduced to a pitiable semblance, beset by the devastating effects of the god's transcendental power. <br><br>
 
 With a resolute descent, Purple Maize's sword delivered an impactful strike, resonating with an unyielding force that reverberated throughout the vast expanse of the desert. In its wake, an extraordinary deluge of divine potency was unleashed, surging forth and engulfing Taj in its cataclysmic torrent. <br><br>
+
+Prologue:     <a href="https://grimreaper2654.github.io/Notes/Lore2">Henry Bird Lore</a>
+Next Chapter: <a href="https://grimreaper2654.github.io/Notes/Lore2">Edward Lore</a>
