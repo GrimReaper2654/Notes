@@ -3,14 +3,22 @@ title: 🪴 Cringe Notes
 enableToc: false
 ---
 
-Cringe notes that are completely irrelevant. Read if you want brain damage. <br>
-<a href="https://grimreaper2654.github.io/Notes/notes/cringe/">Click here</a> for brain damage: <br>
-If link broken, IDK why the link doesn't work. Looks like you will have to copy and paste it into the search bar. Sure sucks to be u<br><br>
+Here are some of my projects: <br>
+<a href="https://github.com/GrimReaper2654/Spaceship-Game">Spaceship Game</a>: (my best game, currently unfinished) <br>
 
-The town:<br>
-<a href="https://grimreaper2654.github.io/Notes/notes/Town/">Click here</a> to see the town that I am helping build<br><br>
+<a href="https://github.com/GrimReaper2654/Taj-Game">The Taj Game</a>: (my first game, very buggy, will recode it later) <br>
 
-Some actual notes that are probably irrelavant. (currently unfinished)<br>
-<a href="https://grimreaper2654.github.io/Notes/notes/Spec/">Click here</a> for Spec Notes<br>
-<a href="https://grimreaper2654.github.io/Notes/notes/Methods/">Click here</a> for Methods Notes<br>
-<a href="https://grimreaper2654.github.io/Notes/notes/Chemistry/">Click here</a> for Chem Notes<br>
+<a href="https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME">Dating Sim</a>: (an alternate universe in which a man named Edward and a girl named [REDACTED] are dating)<br>
+
+<a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
+
+<a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
+
+<a href="https://grimreaper2654.github.io/Notes/notes/BOXcomics/">BOX Comics</a>: (poorly drawn comics on trackpad)<br>
+
+<a href="https://grimreaper2654.github.io/Notes/notes/MCPvP/">Mineraft Commands</a>: (OP minecraft items and mobs made with commands, uses Java 1.19 latest snapshot)<br>
+
+<a href="https://grimreaper2654.github.io/Notes/notes/Englishing/">Englishing</a>: (Stuff I write for no reason at all)<br>
+
+For those who wish for brain damage:
+<a href="https://grimreaper2654.github.io/Notes/notes/Cringe/">Cringe</a>: (cringe stuff, don't read)<br>
