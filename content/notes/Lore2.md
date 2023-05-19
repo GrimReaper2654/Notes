@@ -59,4 +59,4 @@ A rapturous sense of contentment overcame Henry as he bore witness to the inexor
 Henry's corporeal vessel dissipated into radiant motes of luminosity, embracing the gentle zephyrs that wove through the ruins. His essence, liberated and emancipated from the confines of the mortal coil, embarked upon a transcendental journey. Within the celestial tapestry, he awaited the reunion that lay on the horizon, a joyous convergence with the souls of his fellow islanders, their spirits eternally intertwined within the luminous embrace of unity and remembrance. <br><br>
 
 No previous Chapter Avalaible:<br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/Lore1">Shan-Mei Lore</a>
+Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore1">Shan-Mei Lore</a>
