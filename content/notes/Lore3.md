@@ -29,5 +29,5 @@ And then, almost imperceptibly, a slight twitch stirred beneath the layers of ba
 
 Edward's chest swelled with a renewed sense of purpose, intertwining with the flickering embers of hope that danced within his soul. In that fleeting moment, as their gazes met through the veil of bandages, an unspoken vow crystallized between them—an unbreakable pledge to confront the malevolent forces that threatened their world and emerge triumphant. <br><br>
 
-Prev Chapter: <a href="https://grimreaper2654.github.io/Notes/Lore1">Shan-Mei Lore</a><br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/Lore4">TOOMwn Lore (not started)</a>
+Prev Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore1">Shan-Mei Lore</a><br>
+Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore4">TOOMwn Lore</a> (not started)
