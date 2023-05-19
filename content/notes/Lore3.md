@@ -1,4 +1,4 @@
-**Edward Lore**
+**Edward Lore** <br>
 With a languid motion, Edward pried open his eyes, his chest throbbing with a dull, persistent ache. His surroundings materialized before him—an assemblage of pristine white walls, ethereal curtains, and immaculate sheets. It was a hospital room, but not the dilapidated one steeped in nostalgic memories from his childhood. This sterile abode exuded a novel, glossy veneer, emanating an air of modernity. The room reverberated with the dissonant symphony of machines, their metallic beeps, and gentle hums, seeping into his consciousness. <br><br>
 
 "Edward! You've awakened!" exclaimed a voice, brimming with exuberance. He turned his head, and there stood Shan-Mei, his object of affection. Her cascading ebony tresses framed a countenance adorned with almond-shaped eyes that shimmered with an allure, while her slender physique donned a pristine school uniform, accentuating her grace. <br><br>
