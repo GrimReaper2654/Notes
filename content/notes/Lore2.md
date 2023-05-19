@@ -56,4 +56,7 @@ As Henry's discerning gaze swept across the desolation that had befallen the onc
 
 A rapturous sense of contentment overcame Henry as he bore witness to the inexorable dance of restoration that unfolded before his eyes. The girl's wounds, once grievous and mortal, yielded to the tender caress of the amulet's power. In a delicate ballet of rejuvenation, the injuries yielded to the ephemeral touch of ethereal healing, the girl's fractured form mending itself with each passing moment. A subtle smile, one brimming with a profound satisfaction, curved upon Henry's countenance, an acknowledgement of the solace he had bestowed upon this lone survivor. <br><br>
 
-Henry's corporeal vessel dissipated into radiant motes of luminosity, embracing the gentle zephyrs that wove through the ruins. His essence, liberated and emancipated from the confines of the mortal coil, embarked upon a transcendental journey. Within the celestial tapestry, he awaited the reunion that lay on the horizon, a joyous convergence with the souls of his fellow islanders, their spirits eternally intertwined within the luminous embrace of unity and remembrance.
+Henry's corporeal vessel dissipated into radiant motes of luminosity, embracing the gentle zephyrs that wove through the ruins. His essence, liberated and emancipated from the confines of the mortal coil, embarked upon a transcendental journey. Within the celestial tapestry, he awaited the reunion that lay on the horizon, a joyous convergence with the souls of his fellow islanders, their spirits eternally intertwined within the luminous embrace of unity and remembrance. <br><br>
+
+No previous Chapter Avalaible:<br>
+Next Chapter: <a href="https://grimreaper2654.github.io/Notes/Lore1">Shan-Mei Lore</a>
