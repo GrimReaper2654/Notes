@@ -1,4 +1,4 @@
-# An Exceedingly Puzzling Discourse on the Ill-Advised Conundrum of Reading This Essay
+# An Exceedingly Puzzling Discourse on the Ill-Advised Conundrum of Reading This
 
 ## Abstract
 
