@@ -81,4 +81,4 @@ Amidst the stillness, as if whispered by a mystical force, a wondrous revelation
 Startled, Edward turned his gaze toward Spicata, whose tranquil façade remained unyielding as he sat on the porch, sipping his orange juice. Yet, an unsettling aura enveloped him, an air of sinister knowledge that belied his motionless figure. A chill coursed through Edward's veins, as he noticed the handgun in Spicata’s mechanical right hand. <br><br>
 
 Prev Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore1">Shan-Mei Lore</a><br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore4">TOOMwn Lore</a> (not started)
+Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore4">TOOMwn Lore</a>
