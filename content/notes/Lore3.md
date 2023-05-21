@@ -74,9 +74,9 @@ Suddenly, gravity took hold again as the town materialised around Edward. His de
 
 Eagerly seeking confirmation that his mistakes had been corrected, Edward surged forward, slamming open his front door. Stepping out into the open expanse, his heart fluttered with a profound sense of solace as the tranquillity of the desert town washed over him. Gone were the signs of the previous chaos that had ensnared his psyche, replaced by a serene tableau that embraced him with gentle arms. <br><br>
 
-Amidst the stillness, as if whispered by a mystical force, a wondrous revelation seized Edward's attention. Nestled within the recesses of his vision, an unassuming line of text emerged, discreet yet laden with significance: "Status: Mayor." The revelation, like an unexpected boon from an unseen hand, unveiled itself before his discerning gaze, casting newfound purpose upon his weary shoulders. 
+Amidst the stillness, as if whispered by a mystical force, a wondrous revelation seized Edward's attention. Nestled within the recesses of his vision, an unassuming line of text emerged, discreet yet laden with significance: "Status: Mayor." The revelation, like an unexpected boon from an unseen hand, unveiled itself before his discerning gaze, casting newfound purpose upon his weary shoulders.  <br><br>
 
-“Lets goooo! I’m mayor again!” Edward's joyous declaration pierced the stillness, echoing through the morning air. However, his elation was abruptly shattered by a single, ominous sentence that emanated from the neighbouring house. "I saw everything."
+“Lets goooo! I’m mayor again!” Edward's joyous declaration pierced the stillness, echoing through the morning air. However, his elation was abruptly shattered by a single, ominous sentence that emanated from the neighbouring house. "I saw everything." <br><br>
 
 Startled, Edward turned his gaze toward Spicata, whose tranquil façade remained unyielding as he sat on the porch, sipping his orange juice. Yet, an unsettling aura enveloped him, an air of sinister knowledge that belied his motionless figure. A chill coursed through Edward's veins, as he noticed the handgun in Spicata’s mechanical right hand. <br><br>
 
