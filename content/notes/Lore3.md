@@ -1,4 +1,4 @@
-**Edward Lore** <br>
+**Edward Lore:** Note: this contains a lot of inside jokes. If something is weird or out of place, it is probably an inside joke that you don't know.<br>
 With a languid motion, Edward pried open his eyes, his chest throbbing with a dull, persistent ache. His surroundings materialized before him—an assemblage of pristine white walls, ethereal curtains, and immaculate sheets. It was a hospital room, but not the dilapidated one steeped in nostalgic memories from his childhood. This sterile abode exuded a novel, glossy veneer, emanating an air of modernity. The room reverberated with the dissonant symphony of machines, their metallic beeps, and gentle hums, seeping into his consciousness. <br><br>
 
 "Edward! You're awake!" exclaimed a voice, brimming with exuberance. He turned his head, and there stood Shan-Mei, his object of affection. Her cascading ebony hair framed her slender physique, adorned with a pristine school uniform. <br><br>
@@ -17,7 +17,7 @@ Edward was beset by a clammy perspiration, tracing an icy path across his furrow
 
 A groan of agonized despair shattered the fragile calm, commanding Edward's attention. His gaze swerved towards the adjacent hospital bed, where the enigmatic figure known as Reaper lay, ensconced in an intricate web of bandages that concealed his entire form. This military aficionado, renowned for his indomitable spirit, had likewise succumbed to the merciless assault of Taj, sacrificing himself in the futile endeavour of safeguarding Edward from the clutches of the nefarious demon. <br><br>
 
-Tears welled in Edward's eyes as he recalled the chemistry that he had missed out on. Reaper’s health mattered little to him. An indescribable sense of guilt gnawed at Edward’s core, for he hadn’t been studying chem in the weeks that he had been unconscious. <br><br>
+Tears welled in Edward's eyes as his eyes widened in shock and horror. “No!” he gasped, “My chem grade! I missed the chem cap!” Reaper’s health mattered little to him, only chem mattered. An indescribable sense of guilt gnawed at Edward’s core, for he hadn’t been studying chem in the weeks that he had been unconscious. <br><br>
 
 Summoning the reservoirs of fortitude nestled deep within his being, Edward gingerly extended a quivering hand towards the sterile surface of the IV drip frame, resolute in his aspiration to stand up. "I must study chem," he lamented, an unsteady cadence marking his proclamation, "Chem is too important!" <br><br>
 
