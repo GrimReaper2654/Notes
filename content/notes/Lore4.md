@@ -62,7 +62,21 @@ A flash of light momentarily blinded JLee as Dasindu’s positron cannon fired o
 
 A cacophony of anguish and despair erupted from the dying throes of Aeeng, an unearthly wail that reverberated across the battlefield, its haunting resonance piercing the hearts of both friend and foe. The beast, battered and rent asunder, its visage a macabre tapestry of disintegration, could no longer sustain its existence in the realm of mortals. Thus, it succumbed to the inexorable force of oblivion, its disintegrating form dissipating into ethereal tendrils of dark mist that coiled and twisted in a last display of defiance. <br><br>
 
-Like spectral specters, these remnants of Aeeng's malevolence became enveloped within swirling purple portals, ominous gateways to realms beyond mortal comprehension. As the tendrils of dark mist vanished into the nether, the portals sealed shut with an unsettling finality, leaving the battered body of Reaper lying on the ground unconscious. <br><br>
+The remnants of Aeeng's malevolence disappeared within swirling purple portals, ominous gateways to realms beyond mortal comprehension. As the tendrils of dark mist vanished into the nether, the portals sealed shut with an unsettling finality, leaving the battered body of Reaper lying on the ground unconscious. “No, no, no! Stay away!” Reaper muttered as his body spasmed on the ground as if he was having a stroke, “No! No more short answers! Please, I’ll do anything! No, not the extended response, anything but that!” <br><br>
+
+Amidst the chaotic battleground, Edward, fuelled by an indomitable spirit, propelled himself forward, his every sinew straining under the weight of impending doom. The relentless onslaught of Aeche's potent chemical arsenal had ravaged his once-impervious obsidian armour, reducing it to mere fragments, while his once-pristine lab coat had succumbed to the corrosive touch of malevolence, dissolving into tattered remnants. An intricate tapestry of burns and lacerations marred his weary limbs, each telling a harrowing tale of survival against insurmountable odds. <br><br>
+
+With razor-sharp focus, Edward danced with death, his every movement a testament to his unwavering resolve. As Aeche's relentless assault intensified, a hailstorm of bullets, forged from the unforgiving crucible of hard ionic compounds, bore down upon him. Yet, armed with his nanomaterial shield, a marvel of modern ingenuity, he deflected the barrage, each ricocheting projectile a reminder of his tenacity. <br><br>
+
+Within the recesses of his brilliant mind, calculations and analyses danced in a symphony of scientific prowess. The flurry of mass spectrometry and atomic absorption spectroscopy unfolded with blistering speed, unravelling the intricacies of his adversary's chemical arsenal. Amidst the chaos, a glimmer of insight emerged, revealing a chink in Aeche's formidable defences. <br><br>
+
+Seizing the opportune moment, Edward executed a gravity-defying dodge, narrowly evading a stream of combusting hydrocarbons that threatened to engulf him in a fiery demise. In one fluid motion, he hurled a kilogram of plutonium-239, a bold and audacious gambit. Aeche, an unwitting pawn in this dangerous game, unknowingly became a living shield, his immense form unwittingly providing cover. <br><br>
+
+Time stood still as Edward's improvised nuclear weapon hurtled towards its catastrophic destiny, its core approaching supercritical mass with a menacing inevitability. In an awe-inspiring spectacle, the plutonium-239 imploded, unleashing a cataclysmic fission chain reaction that sent shockwaves reverberating through the very fabric of reality. Ionizing radiation, like a swarm of celestial arrows, bombarded Aeche, relentlessly tearing asunder the ionic bonds that formed its formidable armour. <br><br>
+
+A devastating shockwave, an unyielding force of annihilation, rippled across the barren desert, shaking the foundations of the obsidian ramparts to their core. In its wake, a tempestuous wave of nuclear fire surged forth, engulfing the remnants of the demon legions in an infernal conflagration. The very air crackled with unleashed fury as gaping cracks marred the once-impenetrable obsidian fortifications.
+
+Aeche, its corporeal form reduced to fragments, succumbed to the insatiable hunger of dissolution, dissolving into the homogenous mixture of air. As its malevolent soul dissipated into the ether, Edward sighed with relief as he turned to regroup with the other defenders. <br><br>
 
 To be continued…<br><br>
 
