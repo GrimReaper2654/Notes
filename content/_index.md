@@ -8,7 +8,7 @@ Here are some of my projects: <br>
 
 <a href="https://github.com/GrimReaper2654/Taj-Game">The Taj Game</a>: (my first game, very buggy, will recode it later) <br>
 
-<a href="https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME">Dating Sim</a>: (an alternate universe in which a man named Edward and a girl named [REDACTED] are dating)<br>
+<a href="https://github.com/GrimReaper2654/Huynh-Dating-Simulator-EXTREME">Dating Sim</a>: (too much was leaked so its private for now)<br>
 
 <a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
 
