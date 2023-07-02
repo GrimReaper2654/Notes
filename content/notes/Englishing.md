@@ -6,6 +6,6 @@ This is where it all goes:<br><br>
 <a href="https://cringe.toomwn.xyz/notes/IAmEnglish/">I am English</a>: (I am poem about English)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore2/">HLB lore</a>: (Lore about Henry Bird, Prologue to the lore series)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore3/">Edward lore</a>: (Lore about Edward, the second in the lore series)<br>
-<a href="https://cringe.toomwn.xyz/notes/cringe/">Brain Damage</a>: (for those who wish to feel like me)<br>
+<a href="https://cringe.toomwn.xyz/notes/Cringe/">Brain Damage</a>: (for those who wish to feel like me)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore4/">TOOMwn lore</a>: (Lore about the tOOMwn, the third in the lore series)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore5/">Taj lore</a>: (Lore about Taj the Terrorist) (unfinished)<br>
