@@ -36,4 +36,4 @@ In the vast tapestry of intellectual inquiry, the discerning reader must confron
 
 Henceforth, I beseech you, dear reader, to forgo any semblance of curiosity that may persist within the recesses of your inquisitive mind, and safeguard your intellectual well-being from the unrelenting tribulations that await those audacious enough to embark upon the labyrinthine path of deciphering this extraordinary composition. For it is within the realm of inscrutable prose that this essay thrives, a testament to the inherent limits of human cognition and a reminder of the boundless intricacies that shroud the human intellectual landscape.
 
-<a href="https://grimreaper2654.github.io/Notes/notes/cringe2/">The spiritual successor of Brain Damage: Confusion 100</a>
+<a href="https://grimreaper2654.github.io/Notes/notes/Cringe2/">The spiritual successor of Brain Damage: Confusion 100</a>
