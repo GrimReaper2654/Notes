@@ -1,4 +1,4 @@
-baseURL = "https://cringe.toomwn.xyz/Notes/"
+baseURL = "https://cringe.toomwn.xyz/content/Notes/index.md"
 languageCode = "en-us"
 relativeURLs = false
 disablePathToLower = true
