@@ -15,3 +15,5 @@ This is where it all goes:<br><br>
 In Chronological order (based on events that happen in the lore): Taj lore (flashback), HLB lore, Shan-mei lore, Taj lore (most of it), Edward lore, Town Lore<br>
 Writing order (order in which lores were written): Shan-mei lore, HLB lore, Edward lore, Town Lore, Taj lore<br>
 Recommended reading order: HLB lore, Shan-mei lore, Edward lore, Town Lore, Taj lore<br>
+
+**Note:** Most of these texts were written with the help of AI, it alows for more consistent uploads.
