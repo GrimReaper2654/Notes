@@ -181,6 +181,12 @@ Incredible healing item.<br>
 /give @p splash_potion{CustomPotionColor:16711680,display:{Name:'[{"text":"aaa","italic":false,"obfuscated":true,"color":"black"},{"text":" SUPERIOR HEAL ","obfuscated":false,"color":"dark_red"},{"text":"aaa"}]',Lore:['[{"text":"Instantly replenishes health","italic":false}]']},Enchantments:[{id:infinity,lvl:1}],CustomPotionEffects:[{Id:6,Duration:0,Amplifier:8,ShowParticles:0b,ShowIcon:0b}]} 1
 ```
 
+**Insta Kill:**<br>
+Incredibly destructive item.<br>
+```
+/give @p splash_potion{CustomPotionColor:16711680,display:{Name:'[{"text":"aaa","italic":false,"obfuscated":true,"color":"black"},{"text":" INSTANT KILL ","obfuscated":false,"color":"dark_red"},{"text":"aaa"}]',Lore:['[{"text":"Instantly kills everything","italic":false}]']},Enchantments:[{id:infinity,lvl:1}],CustomPotionEffects:[{Id:6,Duration:0,Amplifier:125,ShowParticles:0b,ShowIcon:0b}]} 1
+```
+
 **Piercing Arrow:**<br>
 Deals massive amounts of true damage to living mobs. Also happens to heal undead mobs.<br>
 ```
