@@ -70,5 +70,5 @@ As Terrorist Taj beheld this divine spectacle, a profound trepidation overcame h
 
 With a resolute descent, Purple Maize's sword delivered an impactful strike, resonating with an unyielding force that reverberated throughout the vast expanse of the desert. In its wake, an extraordinary deluge of divine potency was unleashed, surging forth and engulfing Taj in its cataclysmic torrent. <br><br>
 
-Prologue:     <a href="https://grimreaper2654.github.io/Notes/notes/Lore2">Henry Bird Lore</a><br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore3">Edward Lore</a>
+Prologue:     <a href="https://cringe.toomwn.xyz/notes/Lore2">Henry Bird Lore</a><br>
+Next Chapter: <a href="https://cringe.toomwn.xyz/notes/Lore3">Edward Lore</a>

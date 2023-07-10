@@ -154,5 +154,5 @@ With a single gesture, Joel invoked the laws of probability, manipulating chance
 
 With a triumphant smile, Joel unveiled a theorem of divine proportions. The theorem unfurled its mathematical essence, enveloping Aemas in a maelstrom of pure numerical perfection. Unable to find a single flaw within it, the very essence of the demon of advanced mathematical theory unravelled, its existence reduced to a fading echo in the annals of time. <br><br>
 
-Prev Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore3">Edward Lore</a><br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore5">Taj Lore</a> 
+Prev Chapter: <a href="https://cringe.toomwn.xyz/notes/Lore3">Edward Lore</a><br>
+Next Chapter: <a href="https://cringe.toomwn.xyz/notes/Lore5">Taj Lore</a> 

@@ -82,5 +82,5 @@ Edward remained unfazed; his confidence unwavering. "No, it's meth." he responde
 
 A sinister smirk crept across Reaper's face as he gazed at Edward. "Ah, I sense the dawn of an intriguing alliance," he declared with a self-satisfied smile. <br><br>
 
-Prev Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore4">Toom Lore </a><br>
-Next Chapter: <a href="https://grimreaper2654.github.io/Notes/notes/Lore6">??? Lore</a>
+Prev Chapter: <a href="https://cringe.toomwn.xyz/notes/Lore4">tOOMwn Lore </a><br>
+Next Chapter: <a href="https://cringe.toomwn.xyz/notes/Lore6">Spicata Lore</a>
