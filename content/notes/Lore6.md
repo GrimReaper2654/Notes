@@ -11,9 +11,18 @@ Tranquil rivers gracefully meandered through the verdant valleys, their crystall
 
 Yet, amidst this idyllic splendour, a profound emptiness permeated the very fabric of Spicata's creation. Despite the perfection surrounding him, an undeniable void lingered, casting a pall over his own paradise. For even within this utopia, Spicata found himself burdened with an undeniable solitude. <br><br>
 
-Thus, with a mere thought, Spicata extended a tendril of divine might, reaching back into the realm of reality, tainted by the relentless grip of death and decay. With determination as his guide, he embarked on a mission to salvage the few remaining souls, plucking them from the clutches of oblivion, and ushering them into his internal world. <br><br>
+Thus, with a mere thought, Spicata extended a tendril of divine might, reaching back into the realm of reality, tainted by the relentless grip of death and decay. With determination as his guide, he embarked on a mission to salvage the few remaining souls, plucking them from the clutches of oblivion, and ushering them into his internal world. "They'll each have 9 lives" Spicata decided, "I hope they'll put them to good use."<br><br>
 
 "It is time," Spicata whispered to himself, his voice reverberating through the ethereal realm, "to initiate a grand rebirth, a restoration of all that has been lost." In an act of extraordinary selflessness, he sealed away the majority of his omnipotent power, a sacrifice made in the pursuit of a new reality, unburdened by the shackles of malevolence and corruption. <br><br>
+
+Edward, Dasindu, Mace, Spicata, Joel, Choyu, Reaper, Shan-Mei and Loren found themselves atop the crest of a gentle hill, gazes fixed on the breathtaking sight before them: a sprawling, verdant valley destined to become their cherished abode. Below them, a tranquil creek meandered gracefully through the landscape, while a regal oak forest stood tall, offering the promise of abundant lumber for their future residences. The fertile soil beneath their feet nurtured a kaleidoscope of vibrant flowers that painted the terrain with an enchanting tapestry of colors as contented cows and playful sheep frolicked joyfully amidst the lush grass. <br><br>
+
+As they breathed in the pure, refreshing air, the hilltop seemed to whisper stories of new beginnings, inviting the adventurers to etch their own chapter into the annals of history. The possibilities stretched out like the vast horizon, beckoning them to weave their lives intricately with the rhythms of nature and the beauty of the valley. <br><br>
+
+However, not months after the rebirth of the world, civilisation strayed from Spicata's grand vision. Without their past memories, greed and desire drove the former towners. Blood and gore littered the cobblestone paths of the settlement, a cruel reminder of the countless murders committed by Spicata himself. Armed with a enchanted crossbow and an army of hounds at his fingertips, Spicata was unstoppable, a bloodthirthy tyrant ruling over the settlement dubbed Spawn Town. Under Spicata's rule, the citizens suffered. Joel plummeted to his death multiple times, staining the jagged spikes of Spicata's pitfall trap crimson with his own blood. Choyu died once to a crossbow bolt through the head, part of Spicata's new marketing scheme. Dasindu suffered as Spicata's stress toy, his body multilated by Spicata's iron blade. <br><br>
+
+Edward fled through the snow capped mountains, clutching his only posessions to his chest as Spicata relentlessly persued him, his blade yearning for Edward's blood. Shards of ice and snow battered Edward's dimunitive form, leaving bloody cuts and gashes across his exposed skin. The barking of Spicata's wolves subsided behind him, lost to the vicious howl of the blizzard. Putting one threadbare boot infront of the other, Edward slowly trudged up another mountain, seeking refuge from his persuers and the storm. <br><br>
+
 
 [To be continued] <br>
 
