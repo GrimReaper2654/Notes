@@ -26,6 +26,6 @@ Edward fled through the snow capped mountains, clutching his only posessions to 
 
 [To be continued] <br>
 
-Prev Chapter: <a href=" https://cringe.toomwn.xyz/notes/Lore5/">Taj Lore</a><br>
+Prev Chapter: <a href=" https://cringe.toomwn.xyz/notes/Lore5/">\[REDACTED] Lore</a><br>
 Next Chapter: <a href=" https://cringe.toomwn.xyz/notes/Lore7/">??? Lore</a> 
 
