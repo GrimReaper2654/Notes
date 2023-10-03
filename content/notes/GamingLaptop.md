@@ -1,4 +1,4 @@
-**The Gaming Laptop: **<br>
+**The Gaming Laptop:**<br>
 Today, as I entered the dreadful chamber known as Ms Pilling’s chemistry classroom, a foreboding sight unfurled before my eyes, a recurring nightmare etched into the canvas of my mind. Andy Ni had brought his new gaming laptop into the sanctum, an imposing colossus of silicon and steel. The Forklift he used to bring it in was still running idle at the back. <br><br>
 
 Sweat poured down my face, my gaze transfixed upon the Leviathan, a 700-pound embodiment of digital excess. Andy's desk, fortified with robust steel beams, creaked under the weight of his new laptop. Cables, thicker than Andy’s thighs snaked through the classroom, seeking sustenance from the puny 240V mains. <br><br>
