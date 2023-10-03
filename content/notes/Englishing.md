@@ -11,9 +11,9 @@ This is where it all goes:<br><br>
 <a href="https://cringe.toomwn.xyz/notes/Lore5/">\[REDACTED] lore</a>: (Lore about \[REDACTED] the Terrorist, the fourth in the lore series)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore6/">Spicata lore</a>: (Lore about Spicata, the fifth in the lore series) (incomplete)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore7/">??? lore</a>: (Lore about ???, the sixth in the lore series) (not started)<br>
-
+<a href="https://cringe.toomwn.xyz/notes/GamingLaptop/">The Gaming Laptop</a>: (a short story)<br>
 <br>
-**Some info on the Lore series:**<br>
+**Some info on the Lore series:** <br>
 
 In Chronological order (based on events that happen in the lore): \[REDACTED] lore (flashback), HLB lore, Shan-mei lore, \[REDACTED] lore (most of it), Edward lore, Town Lore, Spicata Lore<br>
 
