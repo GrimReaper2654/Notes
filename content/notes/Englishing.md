@@ -13,6 +13,7 @@ This is where it all goes:<br><br>
 <a href="https://cringe.toomwn.xyz/notes/Lore7/">??? lore</a>: (Lore about ???, the sixth in the lore series) (not started)<br>
 <a href="https://cringe.toomwn.xyz/notes/GamingLaptop/">The Gaming Laptop</a>: (a short story)<br>
 <a href="https://cringe.toomwn.xyz/notes/experimental1/">REDACTED x REDACTED2</a>: (chapter 1)<br>
+<a href="https://cringe.toomwn.xyz/notes/children/">I hate Children</a>: (a memoir)<br>
 <br>
 **Some info on the Lore series:** <br>
 
