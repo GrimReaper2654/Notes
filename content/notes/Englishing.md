@@ -8,7 +8,7 @@ This is where it all goes:<br><br>
 <a href="https://cringe.toomwn.xyz/notes/Lore3/">Edward lore</a>: (Lore about Edward, the second in the lore series)<br>
 <a href="https://cringe.toomwn.xyz/notes/Cringe/">Brain Damage</a>: (for those who wish to feel like me)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore4/">TOOMwn lore</a>: (Lore about the tOOMwn, the third in the lore series)<br>
-<a href="https://cringe.toomwn.xyz/notes/Lore5/">\[REDACTED] lore</a>: (Lore about \[REDACTED] the Terrorist, the fourth in the lore series)<br>
+<a href="https://cringe.toomwn.xyz/notes/Lore5/">\[REDACTED2] lore</a>: (Lore about \[REDACTED2] the Terrorist, the fourth in the lore series)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore6/">Spicata lore</a>: (Lore about Spicata, the fifth in the lore series) (incomplete)<br>
 <a href="https://cringe.toomwn.xyz/notes/Lore7/">??? lore</a>: (Lore about ???, the sixth in the lore series) (not started)<br>
 <a href="https://cringe.toomwn.xyz/notes/GamingLaptop/">The Gaming Laptop</a>: (a short story)<br>
