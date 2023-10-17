@@ -12,11 +12,13 @@ Here are some of my projects: <br>
 
 <a href="https://github.com/GrimReaper2654/Chemistry-Revision">Chemistry Revision</a>: (something for memorising the periodic table)<br>
 
-<a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction)<br>
+<a href="https://github.com/the-oom-town/town-interactive">The Town</a>: (interactive 3d town, under construction no longer, V2 will come out eventually)<br>
+
+<a href="https://github.com/GrimReaper2654/AICodeProject">Another Game</a>: (second attempt at making a game, still lacks a propper name, however better than first game but unfinished) <br>
 
 <a href="https://cringe.toomwn.xyz/notes/BOXcomics/">BOX Comics</a>: (poorly drawn comics on trackpad)<br>
 
-<a href="https://cringe.toomwn.xyz/notes/MCPvP/">Mineraft Commands</a>: (OP minecraft items and mobs made with commands, uses Java 1.19 latest snapshot)<br>
+<a href="https://cringe.toomwn.xyz/notes/MCPvP/">Mineraft Commands</a>: (OP minecraft items and mobs made with commands, compatible with Java 1.16.5 or higher, armour trims are not necessary but they require 1.20 or higher)<br>
 
 <a href="https://cringe.toomwn.xyz/notes/Englishing">Englishing</a>: (Stuff I write for no reason at all)<br>
 
