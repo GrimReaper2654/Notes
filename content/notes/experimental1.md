@@ -1,4 +1,4 @@
-**REDACTED x REDACTED2 lore: Chapter 1**<br>
+**[REDACTED] x [REDACTED2] lore: Chapter 1**<br>
 It was a day bathed in sunshine, so warm that it felt as though the sun itself was beaming down to celebrate their fateful encounter. Within the ancient hallways of the Beasly building, [REDACTED2], a year 11 titan, strode confidently towards his economics classroom, woefully unaware that he had computer science instead. The very mention of [REDACTED2]’s name sent confusion through the student body, as he was sufficiently irrelevant that nobody knew who he was. <br><br>
 
 And then there was [REDACTED], a year 9 enigma, a shy wisp of stardust that drifted through the sea of adolescent cacophony. Her music, it was said, had the power to soothe even the most unruly of students ([REDACTED2]), and her oboe, when it sang, moved even the emperor of frogs who resided in the dark recesses of BL4. Her notes website brought salvation to hundreds of her underclassmen who worshiped her as their god. And her silence, well, it was an honour to be privy to it. <br><br>
